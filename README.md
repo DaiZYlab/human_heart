@@ -1,0 +1,1 @@
+Dai Z*, Cheng J, Liu B, Yi D, Feng A, Wang T, Gao C, Wang Y, Zhu MM, Zhang X, Zhao YY*. Loss of Endothelial HIF-Prolyl hydroxylase 2 (PHD2) Induces Cardiac Hypertrophy and Fibrosis. J Am Heart Assoc. 2021; 10(22):0:e022077. *Co-corresponding author
